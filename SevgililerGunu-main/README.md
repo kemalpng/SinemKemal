@@ -1,2 +1,0 @@
-# SevgililerGunu
-SevgililerGünü
